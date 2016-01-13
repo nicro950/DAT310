@@ -1,1 +1,1 @@
-##Assignmedts for DAT310
+##Assignmets for DAT310
